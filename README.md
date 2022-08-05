@@ -1,2 +1,0 @@
-# Mamoru
- juego
